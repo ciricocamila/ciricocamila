@@ -1,4 +1,4 @@
-### Hi, I'm Camila Cirico 👋🏽
+### Hi, I'm [Camila Cirico](https://www.linkedin.com/in/ciricocamila/) 👋🏽
 
 I love bean bag chairs, watching the sunset and I'm a mother of a kind cat  
 Product Designer (UX/UI) at Cognizant-Ford   
