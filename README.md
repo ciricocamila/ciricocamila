@@ -6,7 +6,8 @@ Product Designer (UX/UI) at Cognizant-Ford
 Looking for help with JSE6+, CSS SASS and Frontend React     
 Looking to collaborate on social projects like for LGBTQi+ people, black feminism and veganism  
 
-Nice to meet you! Is there anything that I could help you? [Contact me.](https://www.linkedin.com/in/ciricocamila/)
+Nice to meet you!  
+Is there anything that I could help you? [Contact me.](https://www.linkedin.com/in/ciricocamila/)
 
 
 
