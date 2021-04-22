@@ -4,7 +4,7 @@ I love bean bag chairs, watching the sunset and I'm a mother of a kind cat
 Product Designer (UX/UI) at Cognizant-Ford   
 
 Having fun here and looking for help with JSE6+, CSS SASS and Frontend React     
-Looking to collaborate on social projects like for LGBTQi+ people, black feminism and veganism  
+Looking to collaborate on social projects for LGBTQi+ people, black feminism and veganism  
 
 Nice to meet you!  
 Is there anything that I could help you? [Contact me.](https://www.linkedin.com/in/ciricocamila/)
