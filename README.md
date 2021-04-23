@@ -1,10 +1,10 @@
 # Hi, I'm [Camila Cirico](https://www.linkedin.com/in/ciricocamila/) 👋🏽
 
-I love bean bag chairs, watching the sunset and I'm a mother of a kind cat  
-Product Designer (UX/UI) at Cognizant-Ford   
+I love bean bag chairs, watching the sunset and I'm a mother of a kind cat.  
+Product Designer (UX/UI) at Cognizant-Ford.   
 
-Having fun here and looking for help with JS ES6+, CSS SASS and Frontend React     
-Looking to collaborate on social projects for LGBTQi+ people, black feminism and veganism  
+Having fun here and looking for help with JS ES6+, CSS SASS and Frontend React.     
+Looking to collaborate on social projects for LGBTQi+ people, black feminism and veganism.  
 
 Nice to meet you!  
 Is there anything that I could do to help you? [Contact me.](https://www.linkedin.com/in/ciricocamila/)
