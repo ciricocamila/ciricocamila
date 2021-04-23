@@ -7,7 +7,7 @@ Having fun here and looking for help with JS ES6+, CSS SASS and Frontend React
 Looking to collaborate on social projects for LGBTQi+ people, black feminism and veganism  
 
 Nice to meet you!  
-Is there anything that I could help you? [Contact me.](https://www.linkedin.com/in/ciricocamila/)
+Is there anything that I could do to help you? [Contact me.](https://www.linkedin.com/in/ciricocamila/)
 
 
 
