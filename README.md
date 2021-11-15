@@ -1,6 +1,6 @@
 # Hi, I'm [Camila Cirico](https://www.linkedin.com/in/ciricocamila/) 👋🏽
 
-I'm a UX/UI Degsiner.   
+I'm a UX/UI Designer.   
 I love bean bag chairs, watching the sunset and I'm a mother of a kind cat.  
 
 
