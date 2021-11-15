@@ -1,7 +1,7 @@
 # Hi, I'm [Camila Cirico](https://www.linkedin.com/in/ciricocamila/) 👋🏽
 
 I'm a UX/UI Designer.   
-I love bean bag chairs, watching the sunset and I'm a mother of a kind cat.  
+I love bean bag chairs, watching the sunset and I'm a cat lover and mother of a kind cat.  
 
 
 Having fun here and looking for help with JS ES6+, CSS SASS and Frontend React.     
