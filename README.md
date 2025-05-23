@@ -5,7 +5,7 @@ I love bean bag chairs, watching the sunset and I'm a cat lover and mother of a 
 
 
 Having fun here and looking for help with JS ES6+, CSS SASS and Frontend React.     
-Looking to collaborate on social projects for LGBTQi+ people, black feminism and veganism.  
+Looking to collaborate on social projects for LGBTQiAP+ people, feminism and animal rights.  
 
 Nice to meet you!  
 Is there anything that I could do to help you? [Contact me.](https://www.linkedin.com/in/camilacirico/)
