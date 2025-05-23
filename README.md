@@ -1,4 +1,4 @@
-# Hi, I'm [Camila Cirico](https://www.linkedin.com/in/ciricocamila/) 👋🏽
+# Hi, I'm [Camila Cirico](https://www.linkedin.com/in/camilacirico/) 👋🏽
 
 I'm a UX/UI Designer.   
 I love bean bag chairs, watching the sunset and I'm a cat lover and mother of a kind cat.  
